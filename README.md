@@ -1,8 +1,5 @@
 testabc
 =======
-
-123
-hi, my name is Jessica
-call me little GB
-I'm a GB monster
-ahahaha
+who are u ?
+It's my precious
+what is GB???
